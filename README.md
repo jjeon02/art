@@ -1,3 +1,3 @@
-# Illustration
+# Jueun Jeon's Art
 
-Illustrations done by Jueun Jeon
+Artworks done by Jueun Jeon
